@@ -23,4 +23,4 @@
 在线观看与下载双重选择  
 除了在线视频播放外，很多平台还提供下载功能，用户可以在没有网络连接时观看自己喜爱的影片。通过下载，用户可以将影片保存在本地，随时观看。大部分平台都会提供多个下载选项，以满足不同的需求。用户可以选择高清、标清或超清等不同画质的下载文件，确保最佳观看体验。下载时，建议用户选择官方链接，避免病毒和恶意软件的干扰。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/gmz20250711/rbriben16 )</span>
